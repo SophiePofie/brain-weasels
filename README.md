@@ -79,7 +79,7 @@ Here are some things that help me through the dark days, I hope they help you to
 * Speak to a loved one.
 * Speak to a professional.
 * _If you can't make your own serotonine, store bought is fine._
-* In a crisis, call a [crisis helpline](https://en.wikipedia.org/wiki/List_of_suicide_crisis_lines)!
+* In a crisis, call a  crisis helpline ([Europe](https://en.wikipedia.org/wiki/List_of_suicide_crisis_lines), [USA](https://findahelpline.com/))!
 
 I hope you found something here that makes a hard day even a tiny little bit less hard. Remember you have a perfect track record of making it through your worst days. You can do it. I believe in you. You're not alone.
 
